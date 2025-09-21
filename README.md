@@ -37,4 +37,4 @@ Atualmente em transição de carreira e em Busca de Conhecimento;
 
 Contribuir para projetos open-source;
 
-Continuar aprendendo e me aperfeiçoan
+Continuar aprendendo e me aperfeiçoando
